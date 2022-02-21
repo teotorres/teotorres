@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @teotorres
-- 👀 I’m interested in ...   la musica  , baile, y la tecnologia 
+- 👀 I’m interested in ...   tecnologia 
 - 🌱 I’m currently learning  programacion 
 - 💞️ I’m looking to collaborate on ...  cualquier cosa que me ayude a avanzar 
 - 📫 How to reach me ... 
